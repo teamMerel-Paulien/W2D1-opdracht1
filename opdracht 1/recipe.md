@@ -10,7 +10,7 @@
 * 150gr ground almonds
 * 300 gr spelt flour
 * /zest of lemon
-* 150 gr chopped walnuts
+* 150 gr chopped walnuts/ or hazelnuts
 * 1/2 tsp ground cinnamon
 * 1/2 tsp clove
 
@@ -35,3 +35,5 @@
 9. Cook in oven for two hours and allow to cool fully
 
 10. Serve with lightly whipped coconut cream or warm with vegan vanilla ice cream. Enjoy!
+
+11. If you want you can also add hazelnuts instead of walnuts
